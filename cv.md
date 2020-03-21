@@ -7,7 +7,7 @@
 * Open to new challenges.
 
 #### CONTACT DETAILS
-* krzysztof.niedzielski966@gmail.com
+* krzysztof.niedzielski96@gmail.com
 * [LinkedIn](https://www.linkedin.com/in/krzysztof-niedzielski-764106153/)
 
 #### EXPERIENCE
